@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Samatov Olzhas 190103360
